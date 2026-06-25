@@ -18,7 +18,7 @@
 
 ## NỘI DUNG BÀI TIỂU LUẬN KHOA HỌC DỮ LIỆU
 
-***Link Youtube:*** 
+***Link Youtube: https://youtu.be/SSky2Bkc2q0***  
 
 # <p align="center">***THE END***</p>
 
